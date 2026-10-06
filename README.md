@@ -1,0 +1,2 @@
+# premium-hide-tan-taxid-001-hide-tanning-preserve-craft
+Stop losing track of your hide tanning recipes and batch progress. The Hide Tanning &amp; Preserve Craft Hub centralizes every step of your preservation workflow so you never ruin a hide again.  This Notion template replaces messy notebooks and spreadsheets, designed for both beginners and pros to manage tanning solutions, drying times, and craft proje
